@@ -4,7 +4,7 @@
 <ul>
 <p center:0px><h4>## 1.SkyrimLE</h4> >>Pronto >>ComLink>>GoogleDRIVER: https://seulink.online/paraVcsSkyrimLEMHB </p>
   
-[![Alt text](https://img.youtube.com/vi/gynKGDorank/0.jpg)](https://www.youtube.com/watch?v=gynKGDorank)
+https://user-images.githubusercontent.com/74678483/157378808-d41586e9-3ef5-4138-b3ff-d637cd390c1e.mp4
 #
 
 <p><h4>## 2.alan waker</h4> >>Pronto>>SemLink>></p>
