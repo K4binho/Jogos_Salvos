@@ -13,10 +13,12 @@ https://user-images.githubusercontent.com/74678483/157378808-d41586e9-3ef5-4138-
 
 <p><h4>## 3.cuphead</h4> >>Pronto >>ComLink>>MediaFire: https://fir3.net/paravocesCupHeadMHB </p>
 
+https://user-images.githubusercontent.com/74678483/157380216-19ba881a-b144-4c6f-a367-1688ff808ca4.mp4
 # 
 
 <p><h4>## 4.Katana ZERO </h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsKatanaZeroMHB </p>
 
+https://user-images.githubusercontent.com/74678483/157380414-41cb74a4-8d33-4a06-9c1a-c8fe2fbd15c2.mp4
 # 
 
 <p><h4>## 5.hollow knight</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsHollowKnightMHB </p>
