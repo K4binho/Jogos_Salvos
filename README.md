@@ -1,6 +1,10 @@
 <h1 align="center">:construction: Projeto em construção :construction:</h1>
+## :hammer: Funcionalidades do projeto
 
-<body>
+- `Qual o objetivo desse projeto?`: Apenas ter bachup de alguns Games
+- `Tem virús?`: Não, eu testei e jogo todos fiz até uma varredura com o defender:)
+- `Posso baixar?`: Sim, apenas baixe e extraia onde quiser 
+
 <ul>
 
   <h1> 1.SkyrimLE </h1>
@@ -90,4 +94,3 @@ https://user-images.githubusercontent.com/74678483/157513964-04e381a6-d3e5-4a69-
 <p><h4>## .yaiba ninja gaiden z</h4> >>Falta</p>
   </ul>
 <h1 align="center">:construction: Projeto em construção :construction:</h1>
-</body>
