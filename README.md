@@ -9,7 +9,9 @@
 
   <h1> 1.SkyrimLE </h1>
 
-<p center:0px><h4>## </h4> >>Pronto >>ComLink>>GoogleDRIVER: https://seulink.online/paraVcsSkyrimLEMHB </p>
+>Pronto >>ComLink>>GoogleDRIVER: |https://seulink.online/paraVcsSkyrimLEMHB <br>
+>skyrim mega/instalador          |https://mega.nz/file/j59wlYLa#FoR2Ke0UmJpvnA2TJg7MoAi2q0WbJ6SRUE0jt5a_xbQ <br>
+>kyrim torrent/instalador		  	 |https://seulink.digital/paraVcsTorrentSkyrimLEMHB<br>
 OBS: o jogo não é dublado.
   <br><br>
   
