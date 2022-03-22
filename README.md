@@ -80,18 +80,21 @@ https://user-images.githubusercontent.com/74678483/157514992-9e163aba-e83b-438a-
 https://user-images.githubusercontent.com/74678483/157513935-7d9f9572-f4cf-441a-b14f-1c939ae5664f.mp4
 # 
 
-<p><h4>## 15.thedarkness2</h4> >>Pronto>>SemLink>>            </p></p>   
+<p><h4>## 15.thedarkness2</h4> >>Pronto>>  https://seulink.digital/paraVcsthedarkness2MHB         </p></p>   
 <p>thedarkness2>> Link de coreção caso apareça algum erro: https://seulink.online/paraVcsTDNresolvidoMHB</p>
 
 https://user-images.githubusercontent.com/74678483/157513964-04e381a6-d3e5-4a69-9c23-ee82521eced5.mp4
 #
 <p><h4>## 16.Pacote Office 2022</h4>   >>Pronto >>ComLink>>MediaFire: https://seulink.digital/paraVcsOffice2k22MHB</p>
 
+DOOOM https://seulink.digital/paraVcsDOOMTrylogitMHB
+17.AdbIllustratorCS6>>Pronto>>ComLink>>MDF	 https://seulink.online/paraVcsllustratorCS6MHB
+
 # 
 
 <p><h4>## .DarkSoulsRemaster</h4>   >>Falta</p>
 
-# 
+# https://seulink.digital/paraVcsDarkSoulsRemastMHB
 
 <p><h4>## .yaiba ninja gaiden z</h4> >>Falta</p>
   </ul>
