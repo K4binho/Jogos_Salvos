@@ -1,41 +1,41 @@
-<h1 align="center">:construction: Projeto em construção :construction:</h1>
-## :hammer: Funcionalidades do projeto
+# <h1 align="center">:construction: Projeto em construção :construction:</h1>
+
+:hammer: Funcionalidades do projeto:
 
 - `Qual o objetivo desse projeto?`: Apenas ter bachup de alguns Games
 - `Tem virús?`: Não, eu testei e jogo todos fiz, até uma varredura com o defender:)
 - `Posso baixar?`: Sim, apenas baixe e extraia onde quiser 
 
-<ul>
+>### 1.SkyrimLE
+>skyrim: baixe pelo <a href="https://seulink.online/paraVcsSkyrimLEMHB">Google Driver</a> (só extrair). <br> 
+ skyrim: baixe pelo <a href="https://mega.nz/file/j59wlYLa#FoR2Ke0UmJpvnA2TJg7MoAi2q0WbJ6SRUE0jt5a_xbQ ">mega/instalador</a> instalador só com ingles.  
+ skyrim: baixe pelo <a href="https://seulink.digital/paraVcsTorrentSkyrimLEMHB">torrent/instalador</a> instalador completo.
+>
+>OBS: o jogo não é dublado.
+>
+>https://user-images.githubusercontent.com/74678483/157510470-7a1d3e59-8e46-433a-8b29-06921c2e3b67.mp4
+># 
 
-  <h1> 1.SkyrimLE </h1>
+>#
+>### 2.CupHead
+>CupHead: baixe pelo <a href="https://fir3.net/paravocesCupHeadMHB">MediaFire</a>
+>
+>https://user-images.githubusercontent.com/74678483/157511521-decc3660-c6a7-4f16-88e9-db8af8e00aea.mp4
+># 
 
->Pronto >>ComLink>>GoogleDRIVER: |https://seulink.online/paraVcsSkyrimLEMHB <br>
->skyrim mega/instalador          |https://mega.nz/file/j59wlYLa#FoR2Ke0UmJpvnA2TJg7MoAi2q0WbJ6SRUE0jt5a_xbQ <br>
->kyrim torrent/instalador		  	 |https://seulink.digital/paraVcsTorrentSkyrimLEMHB<br>
-OBS: o jogo não é dublado.
-  <br><br>
-  
-https://user-images.githubusercontent.com/74678483/157510470-7a1d3e59-8e46-433a-8b29-06921c2e3b67.mp4
-#
+>#
+>### 3.Katana ZERO
+>Katana ZERO: baixe pelo <a href="https://seulink.online/paraVcsKatanaZeroMHB">MediaFire</a>
+>
+>https://user-images.githubusercontent.com/74678483/157511806-4b13b9ea-95cd-4f96-a3d9-9bfe05c22972.mp4
+># 
 
-<p><h4>## 2.alan waker</h4> >>Pronto>>SemLink>></p>
-
-# 
-
-<p><h4>## 3.cuphead</h4> >>Pronto >>ComLink>>MediaFire: https://fir3.net/paravocesCupHeadMHB </p>
-
-https://user-images.githubusercontent.com/74678483/157511521-decc3660-c6a7-4f16-88e9-db8af8e00aea.mp4
-# 
-
-<p><h4>## 4.Katana ZERO </h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsKatanaZeroMHB </p>
-
-https://user-images.githubusercontent.com/74678483/157511806-4b13b9ea-95cd-4f96-a3d9-9bfe05c22972.mp4
-# 
-
-<p><h4>## 5.hollow knight</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsHollowKnightMHB </p>
-
-https://user-images.githubusercontent.com/74678483/157512064-9b32d614-7fa9-4100-878f-0c5f953e4c22.mp4
-# 
+>#
+>### 4.hollow knight
+>KatanaZERO: baixe pelo <a href="https://seulink.online/paraVcsHollowKnightMHB">MediaFire</a>
+>
+>https://user-images.githubusercontent.com/74678483/157512064-9b32d614-7fa9-4100-878f-0c5f953e4c22.mp4
+># 
 
 <p><h4>## 6.dead cells </h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsDeadCellsMHB </p>
 
