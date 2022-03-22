@@ -5,7 +5,7 @@
 - `Qual o objetivo desse projeto?`: Apenas ter bachup de alguns Games
 - `Tem virús?`: Não, eu testei e jogo todos fiz, até uma varredura com o defender:)
 - `Posso baixar?`: Sim, apenas baixe e extraia onde quiser 
-
+#
 >### 1.SkyrimLE
 >skyrim: baixe pelo <a href="https://seulink.online/paraVcsSkyrimLEMHB">Google Driver</a> (só extrair). <br> 
  skyrim: baixe pelo <a href="https://mega.nz/file/j59wlYLa#FoR2Ke0UmJpvnA2TJg7MoAi2q0WbJ6SRUE0jt5a_xbQ ">mega/instalador</a> instalador só com ingles.  
