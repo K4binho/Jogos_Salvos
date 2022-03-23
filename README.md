@@ -4,7 +4,7 @@
 
 :hammer: Funcionalidades do projeto:
 
-- `Qual o objetivo desse projeto?`: Apenas ter bachup de alguns Games
+- `Qual o objetivo desse projeto?`: Apenas ter backup de alguns Games
 - `Tem virús?`: Não, eu testei e jogo todos fiz, até uma varredura com o defender:)
 - `Posso baixar?`: Sim, apenas baixe e extraia onde quiser 
 
