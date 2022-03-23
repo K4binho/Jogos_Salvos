@@ -135,7 +135,6 @@
 
 <h1 align="center">:construction:ROM PARA EMULADOR 3DS:construction:</h1>
 
->#
 >### .Emulador de 3DS(citra): ✅ 
 >Citra: baixe pelo <a href="https://citra-emu.org/download/">site oficial.</a> 
 ><br><br>
@@ -148,10 +147,7 @@
 >Download Mega/MediaFire: Em primeiro lugar, nada mais nada menos que <a href="https://seulink.digital/paraVcsOcarinaOfTimeMHB">The Legend of Zelda: Ocarina of Time_PT-BR</a>, <a href=""></a>, <a href=""></a>, <a href=""></a> e <a href=""></a>
 ># 
 
-
-
 ============================================================================================
->#
 >### .AdbIllustratorCS6: ✅ 
 >AdbIllustratorCS6: baixe pelo <a href="https://seulink.online/paraVcsllustratorCS6MHB">MediaFire</a> (só extrair)
 ><br><br>
