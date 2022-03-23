@@ -139,7 +139,9 @@
 >### .Emulador de 3DS(citra): ✅ 
 >Citra: baixe pelo <a href="https://citra-emu.org/download/">site oficial.</a> 
 ><br><br>
->
+>### .ROM´s para o Citra: ✅ 
+>Citra: Temos 3 bons sites eles são <a href="https://citraroms4.blogspot.com/2019/01/roms-3ds-decrypted_14.html">citraroms</a>, <a href="https://www.ziperto.com/nintendo/3ds-roms/">Ziperto</a> e <a href="https://gamesnostalgicobr.blogspot.com/2020/01/roms-3DS.html">gamesnostalgicobr</a>.
+><br><br>
 ># 
 
 
