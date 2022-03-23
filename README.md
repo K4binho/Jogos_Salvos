@@ -71,7 +71,7 @@
 
 >#
 >### 8.ProjectZomboid: ✅
->projectZomboid: baixe pelo <a href="https://seulink.online/paravcsProjectZombiodMHB">MediaFire</a> (só extrair/pt-br)
+>ProjectZomboid: baixe pelo <a href="https://seulink.online/paravcsProjectZombiodMHB">MediaFire</a> (só extrair/pt-br)
 ><br><br>
 >
 >https://user-images.githubusercontent.com/74678483/157513335-50f7a31d-06b6-4544-a638-dd87b03ddd84.mp4
@@ -126,6 +126,16 @@
 ># 
 
 >#
+>### 15.: ✅ 
+>: baixe pelo <a href="">MediaFire</a>
+><br><br>
+>
+># 
+
+
+<h1 align="center">:construction: Projeto em construção :construction:</h1>
+
+>#
 >### .AdbIllustratorCS6: ✅ 
 >AdbIllustratorCS6: baixe pelo <a href="https://seulink.online/paraVcsllustratorCS6MHB">MediaFire</a> (só extrair)
 ><br><br>
@@ -141,9 +151,17 @@
 
 >#
 >### .MegaSemLimte: ✅ 
->MegaSemLimte: baixe pelo <a href="https://seulink.online/paraVcsMegaSemLimiteMHB ">MediaFire</a>
+>MegaSemLimte: baixe pelo <a href="https://seulink.online/paraVcsMegaSemLimiteMHB">MediaFire</a>
 ><br><br>
 >
 ># 
 
-<h1 align="center">:construction: Projeto em construção :construction:</h1>
+>#
+>### .Utorrent Premium: ✅ 
+>Utorrent Premium: baixe pelo <a href="https://seulink.digital/paraVcsUtorrentPremiumMHB">MediaFire</a>(recomendo que instale no modo "Portable" e mude o idioma.)
+><br><br>
+>
+># 
+
+
+
