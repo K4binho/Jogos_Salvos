@@ -41,40 +41,36 @@
 >https://user-images.githubusercontent.com/74678483/157512064-9b32d614-7fa9-4100-878f-0c5f953e4c22.mp4
 ># 
 
-<p><h4>## 6.dead cells </h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsDeadCellsMHB </p>
+>## 6.dead cells </h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsDeadCellsMHB 
 
 https://user-images.githubusercontent.com/74678483/157512489-d568c618-4812-417c-b002-8fea692575d5.mp4
 # 
 
-<p><h4>## 7.MegaSemLimte</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsMegaSemLimiteMHB </p>
+>## 7.MegaSemLimte</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsMegaSemLimiteMHB 
 
 # 
 
-<p><h4>## 8.DragonsDogma</h4> >>Pronto>>SemLink>> </p>
-
-# 
-
-<p><h4>## 9.blasphemous</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsBlasphemousMHB </p>
+>## 9.blasphemous</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsBlasphemousMHB 
 
 https://user-images.githubusercontent.com/74678483/157512755-a22ea6bb-2f75-4d97-bfb0-840171456dee.mp4
 # 
 
-<p><h4>## 10.Oneshot</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsOneShoMHB </p>
+>## 10.Oneshot</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsOneShoMHB
 
 https://user-images.githubusercontent.com/74678483/157512944-fb8f4248-c5fe-493d-968e-172ae05c90cb.mp4
 # 
 
-<p><h4>## 11.projectZomboid</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paravcsProjectZombiodMHB </p>
+>## 11.projectZomboid</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paravcsProjectZombiodMHB
 
 https://user-images.githubusercontent.com/74678483/157513335-50f7a31d-06b6-4544-a638-dd87b03ddd84.mp4
 # 
 
-<p><h4>## 12.celest</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsCelestev1_4MHB </p>
+>## 12.celest</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsCelestev1_4MHB 
 
 https://user-images.githubusercontent.com/74678483/157513487-ede09b7b-d6d4-4d28-8094-6eea11ec3248.mp4
 # 
 
-<p><h4>## 13.HyperLightDrifter</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsHyperLightDrifterMHB </p>
+>## 13.HyperLightDrifter</h4> >>Pronto >>ComLink>>MediaFire: https://seulink.online/paraVcsHyperLightDrifterMHB
 
 https://user-images.githubusercontent.com/74678483/157514992-9e163aba-e83b-438a-8f15-9a2db475af29.mp4
 # 
@@ -84,22 +80,22 @@ https://user-images.githubusercontent.com/74678483/157514992-9e163aba-e83b-438a-
 https://user-images.githubusercontent.com/74678483/157513935-7d9f9572-f4cf-441a-b14f-1c939ae5664f.mp4
 # 
 
-<p><h4>## 15.thedarkness2</h4> >>Pronto>>  https://seulink.digital/paraVcsthedarkness2MHB         </p></p>   
-<p>thedarkness2>> Link de coreção caso apareça algum erro: https://seulink.online/paraVcsTDNresolvidoMHB</p>
+>## 15.thedarkness2</h4> >>Pronto>>  https://seulink.digital/paraVcsthedarkness2MHB        
+>thedarkness2>> Link de coreção caso apareça algum erro: https://seulink.online/paraVcsTDNresolvidoMHB
 
 https://user-images.githubusercontent.com/74678483/157513964-04e381a6-d3e5-4a69-9c23-ee82521eced5.mp4
 #
-<p><h4>## 16.Pacote Office 2022</h4>   >>Pronto >>ComLink>>MediaFire: https://seulink.digital/paraVcsOffice2k22MHB</p>
+># 16.Pacote Office 2022   >>Pronto >>ComLink>>MediaFire: https://seulink.digital/paraVcsOffice2k22MHB
 
-DOOOM https://seulink.digital/paraVcsDOOMTrylogitMHB
-17.AdbIllustratorCS6>>Pronto>>ComLink>>MDF	 https://seulink.online/paraVcsllustratorCS6MHB
+>## .DOOOM https://seulink.digital/paraVcsDOOMTrylogitMHB
+
+>## 17.AdbIllustratorCS6>>Pronto>>ComLink>>MDF	 https://seulink.online/paraVcsllustratorCS6MHB
 
 # 
 
-<p><h4>## .DarkSoulsRemaster</h4>   >>Falta</p>
+>## .DarkSoulsRemaster</h4>   >>Falta
 
 # https://seulink.digital/paraVcsDarkSoulsRemastMHB
 
-<p><h4>## .yaiba ninja gaiden z</h4> >>Falta</p>
   </ul>
 <h1 align="center">:construction: Projeto em construção :construction:</h1>
