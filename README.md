@@ -133,8 +133,18 @@
 ># 
 
 
-<h1 align="center">:construction: Projeto em construção :construction:</h1>
+<h1 align="center">:ROM PARA EMULADOR 3DS:construction:</h1>
 
+>#
+>### .Emulador de 3DS(citra): ✅ 
+>Citra: baixe pelo <a href="https://citra-emu.org/download/">site oficial.</a> 
+><br><br>
+>
+># 
+
+
+
+============================================================================================
 >#
 >### .AdbIllustratorCS6: ✅ 
 >AdbIllustratorCS6: baixe pelo <a href="https://seulink.online/paraVcsllustratorCS6MHB">MediaFire</a> (só extrair)
