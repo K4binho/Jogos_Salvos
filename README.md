@@ -181,7 +181,7 @@
 
 >#
 ><img align="right" width="100px" height="100px" src="https://c.tenor.com/PVkeZ-I-3VoAAAAC/ori-ori-and-the-blind-forest.gif">
->### 15.Ore and the Blind Forest: ✅ 
+>### 15.Ori and the Blind Forest: ✅ 
 >
 >Ori and the Blind Forest: baixe pelo <a href="https://seulink.digital/paravocesTheBlindForestMHB">MediaFire</a>. <br>
 >`Extrair e instalar.`  <br> 
