@@ -236,7 +236,7 @@
 
 >#
 >### .Resident Evil 4: ✅ 
->Resident Evil 4: baixe pelo <a href="https://www.mediafire.com/file/uf1dr17bf62116r/Resident+Evil+4+Ultimate+HD+Edition.torrent/file">MediaFire</a>
+>Resident Evil 4: baixe o torrent pelo <a href="https://www.mediafire.com/file/uf1dr17bf62116r/Resident+Evil+4+Ultimate+HD+Edition.torrent/file">MediaFire</a>
 >Baixe a tradução aqui <a href="https://www.mediafire.com/file/ttvbtf6m3d1v076/Tradução+Resident+Evil+4+Ultimate+HD+Edition+(5+minutos+ou+menos).rar/file">MediaFire</a>
 >
 ><br><br>
