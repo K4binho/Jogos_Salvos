@@ -237,7 +237,8 @@
 >#
 >### .Resident Evil 4: ✅ 
 >Resident Evil 4: baixe o jogo pelo torrent <a href="https://www.mediafire.com/file/uf1dr17bf62116r/Resident+Evil+4+Ultimate+HD+Edition.torrent/file">MediaFire</a><br>
->Caso queira o HD PROJECT <a href="https://www.mediafire.com/file/mhenrydpz0ts9wz/re4hdproject-release3-20180713-dl1.zip.torrent/file ">MediaFire</a><br>
+>Caso queira o <a href="https://www.re4hd.com/?page_id=9303">HD PROJECT</a> <a href="https://www.mediafire.com/file/mhenrydpz0ts9wz/re4hdproject-release3-20180713-dl1.zip.torrent/file ">MediaFire</a><br>
+>OBS: para instalar o <a href="https://www.re4hd.com/?page_id=9303">HD PROJECT</a> mova o arquivo de dentro dele para pasta raiz do jogo e execute o arquivo bat.
 >Baixe a tradução aqui <a href="https://www.mediafire.com/file/ttvbtf6m3d1v076/Tradução+Resident+Evil+4+Ultimate+HD+Edition+(5+minutos+ou+menos).rar/file">MediaFire</a> a senha é "5min"
 >
 ><br><br>
