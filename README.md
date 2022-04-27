@@ -245,6 +245,15 @@
 >
 ># 
 
+>#
+>### .Yaiba Ninja Gaiden Z: ✅ 
+>Yaiba Ninja Gaiden Z: baixe pelo <a href="https://seulink.digital/paraVcs_YNGZ_MHB">MediaFire</a>
+><br><br>
+>
+># 
+
+>#
+
 
 
 
