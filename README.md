@@ -254,6 +254,7 @@
 ># 
 
 >#<a href="https://seulink.digital/paraVcs_metalSlugSaga_MHB">metalSlugSaga</a>
+>>#<a href="https://seulink.digital/paraVcs_StardewValley_MHB">Stardew valley v1.5.6</a>
 
 
 
