@@ -8,9 +8,9 @@
 - `Posso baixar?`: Sim, apenas baixe e extraia onde quiser 
 
 #
-> <img align="right" width="100px" height="100px" src="https://c.tenor.com/3nbGncOTfdMAAAAC/imperial-anarchy.gif">
+
 >### 1.SkyrimLE ✅
->
+> <img align="right" width="100px" height="100px" src="https://c.tenor.com/3nbGncOTfdMAAAAC/imperial-anarchy.gif"><br> 
 >skyrim: baixe pelo <a href="https://seulink.online/paraVcsSkyrimLEMHB">Google Driver</a> (só extrair). <br> 
 >skyrim: baixe pelo <a href="https://mega.nz/file/j59wlYLa#FoR2Ke0UmJpvnA2TJg7MoAi2q0WbJ6SRUE0jt5a_xbQ ">mega/instalador</a> instalador só com ingles.  
 >skyrim: baixe pelo <a href="https://seulink.digital/paraVcsTorrentSkyrimLEMHB">torrent/instalador</a> instalador completo.
@@ -22,7 +22,7 @@
 ># 
 
 >#
-> <img align="right" width="100px" height="100px" src="https://c.tenor.com/rSrDAKROANYAAAAC/cuphead-mugman.gif">
+> <img align="right" width="100px" height="100px" src="https://c.tenor.com/rSrDAKROANYAAAAC/cuphead-mugman.gif"><br> 
 >### 2.CupHead ✅
 >
 >CupHead: baixe pelo <a href="https://fir3.net/paravocesCupHeadMHB">MediaFire</a>.<br> 
@@ -34,7 +34,7 @@
 ># 
 
 >#
-> <img align="right" width="100px" height="100px" src="https://c.tenor.com/KH-EXUKEh2UAAAAi/katana-zero-zero.gif">
+> <img align="right" width="100px" height="100px" src="https://c.tenor.com/KH-EXUKEh2UAAAAi/katana-zero-zero.gif"><br> 
 >### 3.Katana ZERO ✅ 
 >
 >Katana ZERO: baixe pelo <a href="https://seulink.online/paraVcsKatanaZeroMHB">MediaFire</a>. <br> 
@@ -46,7 +46,7 @@
 ># 
 
 >#
-><img align="right" width="100px" height="100px" src="https://c.tenor.com/x2s6iqLu0C4AAAAi/hollow-knight.gif">
+><img align="right" width="100px" height="100px" src="https://c.tenor.com/x2s6iqLu0C4AAAAi/hollow-knight.gif"><br> 
 >### 4.hollow knight ✅
 >
 >hollow knight: baixe pelo <a href="https://seulink.online/paraVcsHollowKnightMHB">MediaFire</a>. <br>
@@ -58,8 +58,8 @@
 ># 
 
 >#
-><img align="right" width="100px" height="100px" src="https://c.tenor.com/wTmftZORKJcAAAAi/dead-cells-wine.gif">
->### 5.dead cells ✅
+><img align="right" width="100px" height="100px" src="https://c.tenor.com/wTmftZORKJcAAAAi/dead-cells-wine.gif"><br> 
+>### 5.dead cells ✅<br> 
 >
 >Dead Cells The Bad Seed: baixe pelo <a href="https://seulink.online/paraVcsDeadCellsMHB">MediaFire</a>. <br>
 >`Extrair e jogar.`  <br> 
@@ -70,7 +70,7 @@
 >#
  
 >#
-><img align="right" width="100px" height="100px" src="https://c.tenor.com/f_JXY-AZYCkAAAAi/blasphemous-game.gif">
+><img align="right" width="100px" height="100px" src="https://c.tenor.com/f_JXY-AZYCkAAAAi/blasphemous-game.gif"><br> 
 >### 6.blasphemous ✅
 >
 >blasphemous: baixe pelo <a href="https://seulink.online/paraVcsBlasphemousMHB">MediaFire</a>. <br> 
@@ -82,7 +82,7 @@
 ># 
 
 >#
-><img align="right" width="100px" height="100px" src="https://c.tenor.com/8YnKGZJOtaMAAAAi/niko-oneshot.gif">
+><img align="right" width="100px" height="100px" src="https://c.tenor.com/8YnKGZJOtaMAAAAi/niko-oneshot.gif"><br> 
 >### 7.OneShot: ✅
 >
 >Oneshot: baixe pelo <a href="https://seulink.online/paraVcsOneShoMHB">MediaFire</a>. <br> 
@@ -94,7 +94,7 @@
 ># 
 
 >#
-><img align="right" width="100px" height="100px" src="https://c.tenor.com/i1pgnQrgOoIAAAAd/project-zomboid.gif">
+><img align="right" width="100px" height="100px" src="https://c.tenor.com/i1pgnQrgOoIAAAAd/project-zomboid.gif"><br> 
 >### 8.ProjectZomboid: ✅
 >
 >ProjectZomboid: baixe pelo <a href="https://seulink.online/paravcsProjectZombiodMHB">MediaFire</a>. <br> 
@@ -106,7 +106,7 @@
 ># 
 
 >#
-><img align="right" width="100px" height="100px" src="https://c.tenor.com/NqNPwonCSIIAAAAC/strawberry-celeste.gif">
+><img align="right" width="100px" height="100px" src="https://c.tenor.com/NqNPwonCSIIAAAAC/strawberry-celeste.gif"><br> 
 >### 9.Celest: ✅ 
 >
 >Celest: baixe pelo <a href="https://seulink.online/paraVcsCelestev1_4MHB">MediaFire</a>. <br> 
@@ -118,7 +118,7 @@
 ># 
 
 >#
-><img align="right" width="100px" height="100px" src="https://c.tenor.com/hviAIl-H83AAAAAi/hyper-light-drifter-sword.gif">
+><img align="right" width="100px" height="100px" src="https://c.tenor.com/hviAIl-H83AAAAAi/hyper-light-drifter-sword.gif"><br> 
 >### 10.HyperLightDrifter: ✅ 
 >
 >HyperLightDrifter: baixe pelo <a href="https://seulink.online/paraVcsHyperLightDrifterMHB">MediaFire</a>. <br> 
@@ -130,7 +130,7 @@
 ># 
 
 >#
-><img align="right" width="100px" height="100px" src="https://a.storyblok.com/f/91641/654x706/5b1d2e5c13/nobody-framed.png">
+><img align="right" width="100px" height="100px" src="https://a.storyblok.com/f/91641/654x706/5b1d2e5c13/nobody-framed.png"><br> 
 >### 11.NobodySavesTheWorld: ✅ 
 >
 >NobodySavesTheWorld: baixe pelo <a href="https://seulink.online/paraVcsNobodySavesTtheWorldMHB">MediaFire</a>. <br>
@@ -142,7 +142,7 @@
 ># 
 
 >#
-><img align="right" width="100px" height="100px" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/d39504d0-bd1a-4817-b02d-015eb95e1be7/d6cc8z3-9a0b4ade-506a-4ab4-a581-e7495ea70bf4.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2QzOTUwNGQwLWJkMWEtNDgxNy1iMDJkLTAxNWViOTVlMWJlN1wvZDZjYzh6My05YTBiNGFkZS01MDZhLTRhYjQtYTU4MS1lNzQ5NWVhNzBiZjQucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.zWVPSOQAeSKnY9RXZZF_Mi-LC6LsXSe0wNuoJZnwxe4">
+><img align="right" width="100px" height="100px" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/d39504d0-bd1a-4817-b02d-015eb95e1be7/d6cc8z3-9a0b4ade-506a-4ab4-a581-e7495ea70bf4.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2QzOTUwNGQwLWJkMWEtNDgxNy1iMDJkLTAxNWViOTVlMWJlN1wvZDZjYzh6My05YTBiNGFkZS01MDZhLTRhYjQtYTU4MS1lNzQ5NWVhNzBiZjQucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.zWVPSOQAeSKnY9RXZZF_Mi-LC6LsXSe0wNuoJZnwxe4"><br> 
 >### 12.thedarkness2: ✅ 
 >
 >thedarkness2: baixe pelo <a href="https://seulink.digital/paraVcsthedarkness2MHB">Mega</a> 
@@ -155,7 +155,7 @@
 ># 
 
 >#
-><img align="right" width="100px" height="100px" src="https://c.tenor.com/H-Tg3ZOkcuEAAAAi/brutal-doom-doom.gif">
+><img align="right" width="100px" height="100px" src="https://c.tenor.com/H-Tg3ZOkcuEAAAAi/brutal-doom-doom.gif"><br> 
 >### 13.DOOM Trylogi(1,2 e 3): ✅ 
 >
 >DOOM Trylogi: baixe pelo <a href="https://seulink.digital/paraVcsDOOMTrylogitMHB">MediaFire</a>. <br>
@@ -167,7 +167,7 @@
 ># 
 
 >#
-><img align="right" width="100px" height="100px" src="https://c.tenor.com/VkqfYQ76BiAAAAAC/dark-souls-bonfire.gif">
+><img align="right" width="100px" height="100px" src="https://c.tenor.com/VkqfYQ76BiAAAAAC/dark-souls-bonfire.gif"><br> 
 >### 14.DarkSoulsRemaster: ✅ 
 >
 >DarkSoulsRemaster: baixe pelo <a href="https://seulink.digital/paraVcsDarkSoulsRemastMHB">MediaFire</a>. <br>
@@ -179,7 +179,7 @@
 ># 
 
 >#
-><img align="right" width="100px" height="100px" src="https://c.tenor.com/PVkeZ-I-3VoAAAAC/ori-ori-and-the-blind-forest.gif">
+><img align="right" width="100px" height="100px" src="https://c.tenor.com/PVkeZ-I-3VoAAAAC/ori-ori-and-the-blind-forest.gif"><br> 
 >### 15.Ori and the Blind Forest: ✅ 
 >
 >Ori and the Blind Forest: baixe pelo <a href="https://seulink.digital/paravocesTheBlindForestMHB">MediaFire</a>. <br>
