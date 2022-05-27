@@ -62,6 +62,7 @@
 >### 5.dead cells ✅<br> 
 >
 >Dead Cells The Bad Seed: baixe pelo <a href="https://seulink.online/paraVcsDeadCellsMHB">MediaFire</a>. <br>
+>Dead Cells Android: baixe pelo <a href="https://seulink.digital/paraVcsDeadCellsAndroidMHB">MediaFire</a>. <br>
 >`Extrair e jogar.`  <br> 
 >`Em Pt-Br.`
 ><br><br>
