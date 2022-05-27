@@ -255,6 +255,7 @@
 
 >#<a href="https://seulink.digital/paraVcs_metalSlugSaga_MHB">metalSlugSaga</a>
 >>#<a href="https://seulink.digital/paraVcs_StardewValley_MHB">Stardew valley v1.5.6</a>
+>>>>#<a href="https://seulink.digital/StardewValleyAndroid_MHB">Stardew valley para celular v1.5.6</a>
 
 
 
