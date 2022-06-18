@@ -12,15 +12,17 @@
 >### 1.SkyrimLE ✅
 > <img align="right" width="100px" height="100px" src="https://c.tenor.com/3nbGncOTfdMAAAAC/imperial-anarchy.gif"><br> 
 >skyrim: baixe pelo <a href="https://seulink.online/paraVcsSkyrimLEMHB">Google Driver</a> (só extrair). <br> 
->skyrim: baixe pelo <a href="https://mega.nz/file/j59wlYLa#FoR2Ke0UmJpvnA2TJg7MoAi2q0WbJ6SRUE0jt5a_xbQ ">mega/instalador</a> instalador só com ingles.  
->skyrim: baixe pelo <a href="https://seulink.digital/paraVcsTorrentSkyrimLEMHB">torrent/instalador</a> instalador completo.
 >
->OBS: o jogo não é dublado.
-> <br><br>
-> 
+>skyrim: baixe pelo <a href="https://mega.nz/file/j59wlYLa#FoR2Ke0UmJpvnA2TJg7MoAi2q0WbJ6SRUE0jt5a_xbQ ">mega/instalador</a> instalador só com ingles.  <br>
+>
+>skyrim: baixe pelo <a href="https://seulink.digital/paraVcsTorrentSkyrimLEMHB">torrent/instalador</a> instalador completo.<br>
+><br>
+>OBS: <br>
+>O jogo não é dublado.<br>
+>Apenas a versão de Download pelo Google Driver é traduzido.<br>
+> <br>
 >https://user-images.githubusercontent.com/74678483/157510470-7a1d3e59-8e46-433a-8b29-06921c2e3b67.mp4
 ># 
-
 >#
 > <img align="right" width="100px" height="100px" src="https://c.tenor.com/rSrDAKROANYAAAAC/cuphead-mugman.gif"><br> 
 >### 2.CupHead ✅
@@ -235,9 +237,5 @@
 >#<a href="https://seulink.digital/paraVcs_metalSlugSaga_MHB">metalSlugSaga</a>
 >>#<a href="https://seulink.digital/paraVcs_StardewValley_MHB">Stardew valley v1.5.6</a>
 >>>>#<a href="https://seulink.digital/StardewValleyAndroid_MHB">Stardew valley para celular v1.5.6</a>
-
-
-
-
-
-
+>>>>#<a href="https://seulink.digital/TerrariaAndroid14321">Terraria_Android_1.4.3.2.1</a>
+>>>>#<a href="https://seulink.digital/TerrariaAndroid14321">Terraria_PC_</a>
