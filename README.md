@@ -7,8 +7,8 @@
 - `Qual o objetivo desse projeto?`: Apenas ter o backup de alguns Games
 - `Posso baixar?`: Sim, apenas baixe e extraia onde quiser
 
-><h1 align="center">1º Skyrim Legendery Edition<h1/>
-> <img align="right" width="100px" height="100px" src="https://c.tenor.com/3nbGncOTfdMAAAAC/imperial-anarchy.gif"><br> 
+># <h1 align="center"/> 1º Skyrim Legendery Edition
+><img align="right" width="100px" height="100px" src="https://c.tenor.com/3nbGncOTfdMAAAAC/imperial-anarchy.gif"> 
 >skyrim: baixe pelo <a href="https://seulink.online/paraVcsSkyrimLEMHB">Google Driver</a> (só extrair). <br> 
 >
 >skyrim: baixe pelo <a href="https://mega.nz/file/j59wlYLa#FoR2Ke0UmJpvnA2TJg7MoAi2q0WbJ6SRUE0jt5a_xbQ ">mega/instalador</a> instalador só com ingles.  <br>
@@ -23,15 +23,15 @@
 ><H4 align="center">TRAILER DO JOGO<h4/>
 >
 >https://user-images.githubusercontent.com/74678483/157510470-7a1d3e59-8e46-433a-8b29-06921c2e3b67.mp4
->
-><h1 align="center">2º CupHead <h1/>
-> <img align="right" width="100px" height="100px" src="https://c.tenor.com/rSrDAKROANYAAAAC/cuphead-mugman.gif"><br> 
+># 
+
+># <h1 align="center"/> 2º CupHead
+> <img align="right" width="100px" height="100px" src="https://c.tenor.com/rSrDAKROANYAAAAC/cuphead-mugman.gif">
 >
 >CupHead: baixe pelo <a href="https://fir3.net/paravocesCupHeadMHB">MediaFire</a>.<br> 
 >`Extrair e jogar.`<br> 
 >`Em Pt-Br.`
 > <br>
->
 ><H4 align="center">TRAILER DO JOGO<h4/>
 >
 >https://user-images.githubusercontent.com/74678483/157511521-decc3660-c6a7-4f16-88e9-db8af8e00aea.mp4
