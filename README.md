@@ -5,11 +5,9 @@
 :hammer: Funcionalidades do projeto:
 
 - `Qual o objetivo desse projeto?`: Apenas ter o backup de alguns Games
-- `Posso baixar?`: Sim, apenas baixe e extraia onde quiser 
+- `Posso baixar?`: Sim, apenas baixe e extraia onde quiser
 
-#
-
->### 1.SkyrimLE ✅
+><h1 align="center">1º Skyrim Legendery Edition<h1/>
 > <img align="right" width="100px" height="100px" src="https://c.tenor.com/3nbGncOTfdMAAAAC/imperial-anarchy.gif"><br> 
 >skyrim: baixe pelo <a href="https://seulink.online/paraVcsSkyrimLEMHB">Google Driver</a> (só extrair). <br> 
 >
@@ -26,15 +24,15 @@
 >
 >https://user-images.githubusercontent.com/74678483/157510470-7a1d3e59-8e46-433a-8b29-06921c2e3b67.mp4
 >
-># 
->#
+><h1 align="center">2º CupHead <h1/>
 > <img align="right" width="100px" height="100px" src="https://c.tenor.com/rSrDAKROANYAAAAC/cuphead-mugman.gif"><br> 
->### 2.CupHead ✅
 >
 >CupHead: baixe pelo <a href="https://fir3.net/paravocesCupHeadMHB">MediaFire</a>.<br> 
->`Extrair e jogar.`  <br> 
+>`Extrair e jogar.`<br> 
 >`Em Pt-Br.`
-><br><br>
+> <br>
+>
+><H4 align="center">TRAILER DO JOGO<h4/>
 >
 >https://user-images.githubusercontent.com/74678483/157511521-decc3660-c6a7-4f16-88e9-db8af8e00aea.mp4
 ># 
