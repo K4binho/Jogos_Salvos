@@ -21,7 +21,9 @@
 >O jogo não é dublado.<br>
 >Apenas a versão de Download pelo Google Driver é traduzido.<br>
 > <br>
+
 >https://user-images.githubusercontent.com/74678483/157510470-7a1d3e59-8e46-433a-8b29-06921c2e3b67.mp4
+
 ># 
 >#
 > <img align="right" width="100px" height="100px" src="https://c.tenor.com/rSrDAKROANYAAAAC/cuphead-mugman.gif"><br> 
