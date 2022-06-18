@@ -190,50 +190,29 @@
 >
 >https://user-images.githubusercontent.com/74678483/159985619-ad1c2f64-9109-41fc-99d4-066f82112ec7.mp4
 ># 
-============================================================================================
-
-<h1 align="center">:construction:ROM PARA EMULADOR 3DS:construction:</h1>
-
->### .Emulador de 3DS(citra): ✅ 
->Citra: baixe pelo <a href="https://citra-emu.org/download/">site oficial.</a> 
-><br><br>
-
->### .ROM´s para o Citra: ✅ 
->Citra: Temos 3 bons sites eles são <a href="https://citraroms4.blogspot.com/2019/01/roms-3ds-decrypted_14.html">citraroms</a>, <a href="https://www.ziperto.com/nintendo/3ds-roms/">Ziperto</a> e <a href="https://gamesnostalgicobr.blogspot.com/2020/01/roms-3DS.html">gamesnostalgicobr</a>.
-><br><br>
-
->### Meu top 5 games favoritos:)
->Download Mega/MediaFire: Em primeiro lugar, nada mais nada menos que <a href="https://seulink.digital/paraVcsOcarinaOfTimeMHB">The Legend of Zelda: Ocarina of Time_PT-BR</a>, <a href="">The Legend of Zelda: Majora's Mask_PT-BR</a>, <a href=""></a>, <a href=""></a> e <a href=""></a>
-># 
-
-============================================================================================
 >### .AdbIllustratorCS6: ✅ 
 >AdbIllustratorCS6: baixe pelo <a href="https://seulink.online/paraVcsllustratorCS6MHB">MediaFire</a> (só extrair)
 ><br><br>
 >
 ># 
-
 >#
 >### .Pacote Office 2022: ✅ 
 >Pacote Office 2022: baixe pelo <a href="https://seulink.digital/paraVcsOffice2k22MHB">MediaFire</a>
 ><br><br>
 >
 ># 
-
 >#
 >### .MegaSemLimte: ✅ 
 >MegaSemLimte: baixe pelo <a href="https://seulink.online/paraVcsMegaSemLimiteMHB">MediaFire</a>
 ><br><br>
 >
 ># 
-
 >#
 >### .Utorrent Premium: ✅ 
 >Utorrent Premium: baixe pelo <a href="https://seulink.digital/paraVcsUtorrentPremiumMHB">MediaFire</a>(recomendo que instale no modo "Portable" e mude o idioma.)
 ><br><br>
 >
 ># 
-
 >#
 >### .Resident Evil 4: ✅ 
 >Resident Evil 4: baixe o jogo pelo torrent <a href="https://www.mediafire.com/file/uf1dr17bf62116r/Resident+Evil+4+Ultimate+HD+Edition.torrent/file">MediaFire</a><br>
@@ -246,7 +225,6 @@
 ><br><br>
 >
 ># 
-
 >#
 >### .Yaiba Ninja Gaiden Z: ✅ 
 >Yaiba Ninja Gaiden Z: baixe pelo <a href="https://seulink.digital/paraVcs_YNGZ_MHB">MediaFire</a>
