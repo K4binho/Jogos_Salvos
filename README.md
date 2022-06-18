@@ -12,7 +12,6 @@
 >skyrim: baixe pelo <a href="https://seulink.online/paraVcsSkyrimLEMHB">Google Driver</a> (só extrair). <br> 
 >
 >skyrim: baixe pelo <a href="https://mega.nz/file/j59wlYLa#FoR2Ke0UmJpvnA2TJg7MoAi2q0WbJ6SRUE0jt5a_xbQ ">mega/instalador</a> instalador só com ingles.  <br>
->
 >skyrim: baixe pelo <a href="https://seulink.digital/paraVcsTorrentSkyrimLEMHB">torrent/instalador</a> instalador completo.<br>
 ><br>
 >OBS: <br>
