@@ -1,3 +1,8 @@
+># 
+><img align="Center"  src="https://user-images.githubusercontent.com/74678483/159605466-3468b37e-28bc-4dc3-b210-9cad32c79492.jpg">
+
+>:hammer: Funcionalidades do projeto:
+><br>
 ># <h1 align="center"/> 1º CupHead <br>
 ><img align="right" width="100px" height="100px" src="https://c.tenor.com/rSrDAKROANYAAAAC/cuphead-mugman.gif">
 >
