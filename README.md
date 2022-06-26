@@ -76,7 +76,7 @@
  
 >#
 ><img align="right" width="100px" height="100px" src="https://c.tenor.com/f_JXY-AZYCkAAAAi/blasphemous-game.gif"><br> 
->### 6.blasphemous ✅
+>### 6.Blasphemous ✅
 >
 >blasphemous: baixe pelo <a href="https://seulink.online/paraVcsBlasphemousMHB">MediaFire</a>. <br> 
 >`Extrair e jogar.`  <br> 
