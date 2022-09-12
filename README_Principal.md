@@ -220,7 +220,7 @@
 >
 >#
 >### .Utorrent Premium: ✅ 
->Utorrent Premium: baixe pelo <a href="https://seulink.digital/paraVcsUtorrentPremiumMHB">MediaFire</a>(recomendo que instale no modo "Portable" e mude o idioma.)
+>Utorrent Premium: baixe pelo <a href="https://4br.me/torrentProV">MediaFire</a>(recomendo que instale no modo "Portable" e mude o idioma.)
 >
 >
 >#
