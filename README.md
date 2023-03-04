@@ -250,6 +250,8 @@
 >`Em Pt-Br.` <br>
 ><br>
 ><H4 align="center">TRAILER DO JOGO<h4/>
+https://www.mediafire.com/file/c4g48z6yvkam5vh/SuperNintendo+++230+roms.rar/file
+https://www.mediafire.com/file/40fxw6rq754flqp/emu+64+++400+roms.rar/file
 >
 >linktrailer
 ># 
