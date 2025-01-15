@@ -211,8 +211,10 @@
 >#
 >### .Pacote Office 2022: ✅ 
 >microsoft office ltsc professional plus 2021: baixe pelo <a href="https://www.mediafire.com/file/f7i2upebfeuumw4/MS+OFFICE+SETUP.rar/file">MediaFire</a>
+>Siga o passo a passo descrito no arquivo.
 >
 >Pacote Office 2013-2021: baixe pelo <a href="https://www.mediafire.com/file/5jxpjwqhqcnumlg/OFFICE+2021.iso/file">MediaFire</a>
+>Abra a ISO com o Winrar
 >
 >#
 >### .MegaSemLimte: ✅ 
