@@ -210,8 +210,9 @@
 >
 >#
 >### .Pacote Office 2022: ✅ 
->Pacote Office 2022: baixe pelo <a href="https://seulink.digital/paraVcsOffice2k22MHB">MediaFire</a>
+>microsoft office ltsc professional plus 2021: baixe pelo <a href="https://www.mediafire.com/file/f7i2upebfeuumw4/MS+OFFICE+SETUP.rar/file">MediaFire</a>
 >
+>Pacote Office 2013-2021: baixe pelo <a href="https://www.mediafire.com/file/5jxpjwqhqcnumlg/OFFICE+2021.iso/file">MediaFire</a>
 >
 >#
 >### .MegaSemLimte: ✅ 
